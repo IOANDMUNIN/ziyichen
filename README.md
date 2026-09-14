@@ -1,2 +1,2 @@
 # ziyichen
-Email: ziyichen415@163.com
+Email: chenziyi@qiyuanlab.com
